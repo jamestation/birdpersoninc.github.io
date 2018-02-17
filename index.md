@@ -41,11 +41,11 @@ Birdperson and Squanchy have apparently also been friends for a long time. In th
 During her conversation with Birdperson in [[The Wedding Squanchers]], Beth tells Birdperson how she used to draw Rick into her family photos with a crayon. Birdperson told Beth how he fought alongside him against the [[Galactic Federation]]. Beth was saddened by this. She is envious of Birdperson for all the time he spent with Rick. In spite of this, she is very supportive of him on his wedding day.
 
 ## Quotes
-*"The Beacon was activated. Who is in danger?" ''(First Quote)''
-*"'Wubba lubba dub dub' means 'I am in great pain, please help me'."
-*"'Gubba nub nub doo rah kah' means 'Whatever lets you sleep at night'."
-*"You appear to be dying. I will make efforts to prevent this, but can promise nothing."
-*"Is your intention to abandon Rick, using his own portal gun? In bird culture, this is considered a dick move."
-*"Morty, suppose you could retrieve your family from Earth but had to abandon Rick. I could give your loved ones shelter on Birdworld, even jobs, possibly as worm ranchers. How often do you think you might look up at the stars and wonder what might have been, had you just put your faith in Rick?"
-*"Tammy, I was approaching infertility when I met you but there is still time. I am yours until my death." ''(Wedding Vow)''
-*"In Bird culture this is considered a dick move."
+* The Beacon was activated. Who is in danger?.
+* Wubba lubba dub dub' means 'I am in great pain, please help me'.
+* Gubba nub nub doo rah kah' means 'Whatever lets you sleep at night'.
+* You appear to be dying. I will make efforts to prevent this, but can promise nothing.
+* Is your intention to abandon Rick, using his own portal gun? In bird culture, this is considered a dick move.
+* Morty, suppose you could retrieve your family from Earth but had to abandon Rick. I could give your loved ones shelter on Birdworld, even jobs, possibly as worm ranchers. How often do you think you might look up at the stars and wonder what might have been, had you just put your faith in Rick?
+* Tammy, I was approaching infertility when I met you but there is still time. I am yours until my death." ''(Wedding Vow)''
+* In Bird culture this is considered a dick move.
